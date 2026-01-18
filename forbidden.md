@@ -7,3 +7,13 @@ On Erotic Story Hub, forbidden stories are built around slow tension, atmosphere
 This category is intended for adult readers interested in psychological erotic fiction with depth and intensity.
 
 👉 https://eroticstoryhub.com/
+
+
+---
+
+Explore more on Erotic Story Hub:
+
+- [Home](index.html)
+- [Family Taboo Fiction](family-taboo.html)
+- [Forbidden Desire Stories](forbidden.html)
+- [Adult Confession Stories](confessions.html)
