@@ -9,3 +9,13 @@ Erotic Story Hub does not promote real-life behavior. Stories may include taboo 
 This website is intended exclusively for adults aged 18 and over.
 
 👉 https://eroticstoryhub.com/
+
+---
+
+Explore more on Erotic Story Hub:
+
+- [Home](index.html)
+- [Family Taboo Fiction](family-taboo.html)
+- [Forbidden Desire Stories](forbidden.html)
+- [Adult Confession Stories](confessions.html)
+
