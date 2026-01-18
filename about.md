@@ -9,3 +9,12 @@ Erotic Story Hub emphasizes storytelling, atmosphere, and internal conflict rath
 The platform is designed for readers seeking adult fiction with depth, tension, and narrative intensity.
 
 👉 https://eroticstoryhub.com/
+
+---
+
+Explore more on Erotic Story Hub:
+
+- [Home](index.html)
+- [Family Taboo Fiction](family-taboo.html)
+- [Forbidden Desire Stories](forbidden.html)
+- [Adult Confession Stories](confessions.html)
