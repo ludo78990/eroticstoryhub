@@ -9,3 +9,13 @@ The website does not host illegal material, real personal content, or non-consen
 Erotic Story Hub reserves the right to edit, remove, or refuse content that does not meet its guidelines.
 
 👉 https://eroticstoryhub.com/
+
+---
+
+Explore more on Erotic Story Hub:
+
+- [Home](index.html)
+- [Family Taboo Fiction](family-taboo.html)
+- [Forbidden Desire Stories](forbidden.html)
+- [Adult Confession Stories](confessions.html)
+
