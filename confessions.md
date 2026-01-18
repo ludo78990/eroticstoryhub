@@ -7,3 +7,13 @@ These stories often feel personal and raw, focusing on internal dialogue, guilt,
 Erotic Story Hub offers adult confession stories written as fictional narratives for mature readers who enjoy emotionally charged and immersive storytelling.
 
 👉 https://eroticstoryhub.com/
+
+---
+
+Explore more on Erotic Story Hub:
+
+- [Home](index.html)
+- [Family Taboo Fiction](family-taboo.html)
+- [Forbidden Desire Stories](forbidden.html)
+- [Adult Confession Stories](confessions.html)
+
